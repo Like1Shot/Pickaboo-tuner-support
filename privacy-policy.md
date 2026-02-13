@@ -48,7 +48,7 @@ Pickaboo ("we", "our", or "the app") is a musical instrument tuner application. 
 
 If you have any questions about this Privacy Policy, please contact:
 
-**Email:** [YOUR EMAIL ADDRESS]
+**Email:** [pickabooprivacy@ariadnestudioworks.com]
 
 ---
 
